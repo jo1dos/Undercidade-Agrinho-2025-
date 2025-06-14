@@ -4,3 +4,5 @@ para trás, pois as cidades descobriram um jeito de não depender mais da agricu
 sobrevivência. Mas houve um dia, onde um único fazendeiro recebeu uma proposta de emprego e 
 partiu a pé para ser contratado, mas em meio a isso, existiram vários problemas por cima
 disso tudo e no meio da trajetória até chegar lá.
+
+e sim, o nome é uma paródia de Undertale com Cidade.
